@@ -1,4 +1,4 @@
-# 
+# ultimate bot de negociação perpétua ferramentas é o melhor bot de negociação perpétua ferramentas com suporte multi-exchange e baixa frequência. Seguro, confiável e otimizado para
 
 
 
